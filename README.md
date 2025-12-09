@@ -1,3 +1,4 @@
+![foam_roll_it_band](foam_roll_it_band.gif)
 Foam Roll IT Band: 10-15 passes
 
 Foam Roll Adductors: 10-15 passes
